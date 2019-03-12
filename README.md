@@ -1,4 +1,4 @@
-# We have no classes today !!
+# We have no class today !!
 
 近畿大学福岡キャンパスの休講規定に定められた範囲（福岡地方、北九州地方、筑豊地方）に暴風警報が出た場合、ツイートしてお知らせします。
 
